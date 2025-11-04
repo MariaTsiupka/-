@@ -1,4 +1,5 @@
 # -
 first PyQt5 project
-jddrhjxcxdx
 
+потужність
+логі топ
