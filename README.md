@@ -1,3 +1,3 @@
-потужність 
-серсоний 
-логічний
+gdhgdskhds
+vnxzfhfdhs
+jdggesjds
